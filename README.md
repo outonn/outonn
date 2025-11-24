@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...c++
 - 🌱 I’m currently learning ...c++
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...ued620@outlook.jp
+- 📫 How to reach me ..
 - 😄 Pronouns: ...outonn
 - ⚡ Fun fact: ...
 
